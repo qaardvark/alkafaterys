@@ -1,1 +1,1 @@
-https://atheodog.github.io/alkafaterys/
+https://qaardvark.github.io/alkafaterys/
